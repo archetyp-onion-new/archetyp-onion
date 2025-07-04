@@ -56,4 +56,6 @@ If you are prepared to explore Archetyp: Market, here are the vital links to get
 
 This guide is intended solely for educational purposes. The information provided is meant to increase awareness and understanding of the darknet. We neither endorse nor promote any illegal activities. Always comply with local laws and regulations when exploring the internet. Stay safe and informed, and remember the risks associated with using the Archetyp Onion.
 
-Update:  26.06.2025 09:04 Link is now live and reachable
+
+
+Update:  Friday 04 July 2025
