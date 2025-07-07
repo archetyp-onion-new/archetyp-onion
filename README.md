@@ -58,4 +58,6 @@ This guide is intended solely for educational purposes. The information provided
 
 
 
-Update:  Friday 04 July 2025
+
+
+Update:  07.07.2025 11:52:38 link is back up and accessible
