@@ -60,4 +60,6 @@ This guide is intended solely for educational purposes. The information provided
 
 
 
-Update:  07.07.2025 11:52:38 link is back up and accessible
+
+
+Update: I'm pleased to announce that the link is back up.
